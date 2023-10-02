@@ -1,0 +1,8 @@
+- # SOBRE COISAS ALEATORIAS
+ME CHAMO GUILHERME M. AMARAL MEU NUMERO DA CHAMADA É 12
+
+TENHO 15 ANOS 
+
+SOU CORINTHIANO E GRANDE FÃ DO CASSIO E FAGNER
+
+![alt](https://cdn.dol.com.br/img/Artigo-Destaque/780000/1200x0/Untitled-design---2022-12-16T084518170_00786759_0_-3.webp?fallback=https%3A%2F%2Fcdn.dol.com.br%2Fimg%2FArtigo-Destaque%2F780000%2FUntitled-design---2022-12-16T084518170_00786759_0_.png%3Fxid%3D2500699&xid=2500699)
